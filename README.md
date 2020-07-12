@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-### Javascript Developer ♥ ♥
+### In love with Javascript ♥ ♥
